@@ -1,1 +1,0 @@
-# emotoin_deduction
